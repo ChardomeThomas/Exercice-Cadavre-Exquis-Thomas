@@ -14,3 +14,6 @@ C'est à ce moment là que le vaisseau Interprise fit son apparission et emporta
 
 
 Surprise en arrivant dans l'univers parallèle, Gus était bel et bien vivant et ne comprenait pas de pouvoir se voir mort.
+I summon you Blue Eyes White Dragon, in attack mode !
+
+![Blue Eyes White Dragon](https://i.pinimg.com/originals/5c/79/38/5c7938caeaa94302065551a322483c95.gif)
