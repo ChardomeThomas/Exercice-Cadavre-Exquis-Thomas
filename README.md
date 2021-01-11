@@ -9,3 +9,8 @@ Suspicio? Bene ... tunc ibimus? Quis uh ... CONEXUS locus his diebus? Quisque se
 C'est à ce moment là que le vaisseau Interprise fit son apparission et emporta Gus dans un univers parallèle afin d'essayer de le sauver.
 
 ![Alt Text](https://media.giphy.com/media/lKKXOCVviOAXS/giphy.gif)
+
+
+
+
+Surprise en arrivant dans l'univers parallèle, Gus était bel et bien vivant et ne comprenait pas de pouvoir se voir mort.
